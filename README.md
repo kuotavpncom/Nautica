@@ -91,3 +91,7 @@ Berikut cara aktivasinya:
 
 - Hal aneh lain yang saya kerjakan [FoolVPN](https://t.me/foolvpn)
 - Tanya-tanya -> [Telegram](https://t.me/d_fordlalatina)
+
+# Video
+
+https://www.youtube.com/watch?v=o3M2r26LWfk
